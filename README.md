@@ -4,7 +4,4 @@ There are some inconsistencies with the visualizations but it's not really that 
 
 Have a nice day and stay safe.
 
-
-Subscribe to me on YouTube: https://www.youtube.com/channel/UCr50H-ZoN2xE5w-p33gtIQw
-
-It will really help me out and I will very much appreciate it.
+YouTube: https://www.youtube.com/channel/UCr50H-ZoN2xE5w-p33gtIQw
